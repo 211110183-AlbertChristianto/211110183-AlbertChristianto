@@ -1,4 +1,4 @@
-### Hi there 👋
+### Nama saya Albert Christianto.
 
 <!--
 **211110183-AlbertChristianto/211110183-AlbertChristianto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
